@@ -9,7 +9,8 @@ Work Description
 
 - Executed modern interior design work for a hair salon, including decorative wall panels and wooden finishes.
 - Installed and coordinated decorative lighting to enhance the salon's appearance and ambience.
-- Worked on reception counter design featuring a marble-finish surface and customized wooden detailing.
+- Worked on reception counter design featuring a marble-finish surface and customized wooden detailing
+- Designed and constructed an interior partition to divide one room into separate functional spaces, improving space utilization, privacy, and overall interior layout..
 - Contributed to interior finishing, furniture placement, and overall space organization.
 
 Key Highlights
