@@ -1,4 +1,4 @@
-# SB-Interior-Work
+# SB-Interior Work
 
 ### Hair Salon Interior Design
 Project Overview
