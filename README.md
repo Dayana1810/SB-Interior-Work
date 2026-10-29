@@ -26,4 +26,4 @@ Real-World Interior Design and Execution
 
 Contribution
 
-Hands-on involvement in completing the salon interior project in collaboration with my brother.
+Hands-on involvement in completing the salon interior project in collaboration with my brother. 
