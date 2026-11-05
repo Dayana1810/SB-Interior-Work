@@ -28,6 +28,6 @@ Contribution
 
 Hands-on involvement in completing the salon interior project in collaboration with my brother. 
 
-### Final Look for Saloon
-## Reception Area
+## Final Look for Saloon
+### Reception Area
 <img width="960" height="1280" alt="Sb interior" src="https://github.com/user-attachments/assets/c58b4304-be8f-471e-a180-7e73c96ce683" />
