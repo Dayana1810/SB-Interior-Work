@@ -32,8 +32,10 @@ Hands-on involvement in completing the salon interior project in collaboration w
 ### Reception Area
 <img width="960" height="1280" alt="Sb interior" src="https://github.com/user-attachments/assets/c58b4304-be8f-471e-a180-7e73c96ce683" />
 
-### Sitting Area 
-Will add some picture after finising work.
+<img width="4032" height="3024" alt="WhatsApp Image 2026-11-13 at 10 51 22 AM" src="https://github.com/user-attachments/assets/6811d70b-06bd-4b52-8867-096408a55eb8" />
+
+<img width="1280" height="960" alt="WhatsApp Image 2026-11-13 at 10 51 18 AM" src="https://github.com/user-attachments/assets/90b4cc4a-bdf3-483c-870c-5d8741d7704b" />
+
 
 
 
